@@ -1,1 +1,0 @@
-# larevistacaballo-web
